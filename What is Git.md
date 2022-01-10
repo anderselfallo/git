@@ -1,0 +1,1 @@
+![](https://static.platzi.com/media/user_upload/Que_es_Git-fce8cb7b-347d-4894-8454-0adf0ae6e0f7.jpg)
